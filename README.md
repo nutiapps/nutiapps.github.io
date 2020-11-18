@@ -1,4 +1,6 @@
 > Know your food | Eat well for better life | Conntect doctor for consultancy
 
-![food](https://drive.google.com/file/d/1MJhpBT0sk87yBHDwUGuxm9Z50vxvDOln/view)
+![food](https://drive.google.com/uc?export=view&id=1MJhpBT0sk87yBHDwUGuxm9Z50vxvDOln)
+
+
 @nutiapps@gmail.com
